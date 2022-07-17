@@ -1,6 +1,6 @@
 ## I am Steve George
 
-I am an undergraduate student at Soochow University, majoring in Electronic Information Engineering.
+I am an undergraduate student at Soochow University, majoring in Electronic and Information Engineering.
 
 Bilibili: [Steve George](https://space.bilibili.com/454612574)
 
