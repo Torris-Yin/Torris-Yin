@@ -1,9 +1,9 @@
-## I am Steve George
+## I am Torris Yin
 
 I am an undergraduate student at Soochow University, majoring in Electronic and Information Engineering.
 
-**Bilibili**: [Steve George](https://space.bilibili.com/454612574)
+**Bilibili**: [Torris Yin](https://space.bilibili.com/454612574)
 
-**WeChat**: Steve-George
+**WeChat**: Torris-Yin
 
 **Mobile**: +86-188-0154-2108
